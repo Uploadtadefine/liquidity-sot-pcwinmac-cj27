@@ -1,4 +1,4 @@
-# 
+# Novo liquidity sniper bot fluxo de trabalho para Mac OS | Instantâneo liquidity sniper bot fluxo de trabalho para PC Windows. Com painéis personalizados e execução rápida — otimizado para máximo desempeño en cada plataforma.
 
 
 
